@@ -4,7 +4,7 @@
 
 ## Come contribuire
 1. Controlla che i tuoi memes siano *fresh*
-2. Modifica questo documento clickando sul tasto "modifica" in alto a destra
+2. Modifica [questo documento](https://github.com/scaccogatto/dota2-italia-memes/blob/master/README.md) clickando sul tasto "modifica" in alto a destra
 3. Per formattare il tuo testo come un 9k segui [questa guida](http://daringfireball.net/projects/markdown/basics)
 4. Inserisci i tuoi memes secondo categoria e in ordine cronologico
 5. Se pensi che il tuo meme faccia parte di una nuova categoria, aggiungila
