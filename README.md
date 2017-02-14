@@ -14,3 +14,6 @@
 
 ### Boostati
 - [screen1](http://i.imgur.com/xuNZ47z.png) - [screen2](http://i.imgur.com/DeyrGA3.png) - Rama Malaguti
+
+### Ritardo Generale
+- [screen](http://i.imgur.com/Mkiz0LH.png) - Luca Campolo, *piccola perla*
