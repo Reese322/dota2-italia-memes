@@ -18,3 +18,6 @@
 ### Ritardo Generale
 - [screen](http://i.imgur.com/Mkiz0LH.png) - Luca Campolo, *piccola perla*
 - [screen](http://i.imgur.com/D3PNjuG.png) - Pier Paolo Tricomi, utilissimo alla community!
+
+### Offese Gratuite
+- [screen](http://i.imgur.com/qmx64KO.png) - Tommaso Cei
