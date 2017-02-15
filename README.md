@@ -22,3 +22,6 @@
 
 ### Offese Gratuite
 - [screen](http://i.imgur.com/qmx64KO.png) - Tommaso Cei
+
+### Tasto "PrintScreen"
+- [screen](http://i.imgur.com/WCdvLhJ.png) - Marco Paletta Trane
