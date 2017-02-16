@@ -22,6 +22,7 @@
 
 ### High Quality Posts
 - [screen](http://i.imgur.com/t6ZHN6u.png) - Davide Capruzzi, sul pezzo; da League of Legends
+- [screen](http://i.imgur.com/bDSFdlk.png) - Leonardo Del Buono, sul pezzo come sopra, ma leggermente in ritardo. Complimentoni.
 
 ### Offese Gratuite
 - [screen](http://i.imgur.com/qmx64KO.png) - Tommaso Cei
