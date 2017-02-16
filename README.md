@@ -20,6 +20,9 @@
 - [screen](http://i.imgur.com/D3PNjuG.png) - Pier Paolo Tricomi, utilissimo alla community!
 - [screen](http://imgur.com/a/Mb9DJ) - Simone Ness Martorana, che schifo i 3k
 
+### High Quality Posts
+- [screen](http://i.imgur.com/t6ZHN6u.png) - Davide Capruzzi, sul pezzo; da League of Legends
+
 ### Offese Gratuite
 - [screen](http://i.imgur.com/qmx64KO.png) - Tommaso Cei
 
