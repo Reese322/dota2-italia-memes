@@ -1,6 +1,9 @@
 # Dota2 Italia Memes
 > basati sul gruppo Facebook [Dota2 Italia](https://www.facebook.com/groups/Dota2Italy/)
 
+## Gruppi di broadcast
+- [Telegram](https://t.me/dota2italiamemes)
+
 
 ## Come contribuire
 1. Controlla che i tuoi memes siano *fresh*
