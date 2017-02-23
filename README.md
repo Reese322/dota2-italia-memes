@@ -25,6 +25,7 @@
 - [screen](http://i.imgur.com/uRAmm9q.png) - Francesco Pozzanghera, QI?
 - [screen](http://i.imgur.com/XtuO1sL.png) - Andre Cantagalli, QI?
 - [screen](http://i.imgur.com/7kFJ6Ed.png) - Andre Cantagalli, boh. *con rage di Matteo Rigoni*
+- [screen](http://i.imgur.com/COLQYld.png) - Nico Graverini, hai zero fantasia, come i neuroni
 
 ### High Quality Posts
 - [screen](http://i.imgur.com/t6ZHN6u.png) - Davide Capruzzi, sul pezzo; da League of Legends
