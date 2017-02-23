@@ -36,6 +36,7 @@
 ### Blog
 - [screen](http://i.imgur.com/CAEgubJ.png) - Andrea Elle
 - [screen](http://i.imgur.com/LNzhfqR.png) - Alberto Valle
+- [screen](http://i.imgur.com/v5cycJ6.png) - Marco Verrastro, osceno oltre che sessista
 
 ### Offese Gratuite
 - [screen](http://i.imgur.com/qmx64KO.png) - Tommaso Cei
