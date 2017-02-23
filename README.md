@@ -31,6 +31,9 @@
 - [screen](http://i.imgur.com/3tEXMZP.png) - Alex Martielli, molto utile alla discussione su Dota2
 - [screen](http://i.imgur.com/BKumDvJ.png) - Roberto Crosignani, se non sei noob, ari
 
+### Blog
+- [screen](http://i.imgur.com/CAEgubJ.png) - Andrea Elle
+
 ### Offese Gratuite
 - [screen](http://i.imgur.com/qmx64KO.png) - Tommaso Cei
 
