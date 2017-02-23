@@ -24,6 +24,7 @@
 - [screen](http://imgur.com/a/Mb9DJ) - Simone Ness Martorana, che schifo i 3k
 - [screen](http://i.imgur.com/uRAmm9q.png) - Francesco Pozzanghera, QI?
 - [screen](http://i.imgur.com/XtuO1sL.png) - Andre Cantagalli, QI?
+- [screen](http://i.imgur.com/7kFJ6Ed.png) - Andre Cantagalli, boh. *con rage di Matteo Rigoni*
 
 ### High Quality Posts
 - [screen](http://i.imgur.com/t6ZHN6u.png) - Davide Capruzzi, sul pezzo; da League of Legends
