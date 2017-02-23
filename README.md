@@ -23,6 +23,7 @@
 - [screen](http://i.imgur.com/D3PNjuG.png) - Pier Paolo Tricomi, utilissimo alla community!
 - [screen](http://imgur.com/a/Mb9DJ) - Simone Ness Martorana, che schifo i 3k
 - [screen](http://i.imgur.com/uRAmm9q.png) - Francesco Pozzanghera, QI?
+- [screen](http://i.imgur.com/XtuO1sL.png) - Andre Cantagalli, QI?
 
 ### High Quality Posts
 - [screen](http://i.imgur.com/t6ZHN6u.png) - Davide Capruzzi, sul pezzo; da League of Legends
