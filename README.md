@@ -33,6 +33,7 @@
 
 ### Blog
 - [screen](http://i.imgur.com/CAEgubJ.png) - Andrea Elle
+- [screen](http://i.imgur.com/LNzhfqR.png) - Alberto Valle
 
 ### Offese Gratuite
 - [screen](http://i.imgur.com/qmx64KO.png) - Tommaso Cei
