@@ -26,6 +26,7 @@
 - [screen](http://i.imgur.com/XtuO1sL.png) - Andre Cantagalli, QI?
 - [screen](http://i.imgur.com/7kFJ6Ed.png) - Andre Cantagalli, boh. *con rage di Matteo Rigoni*
 - [screen](http://i.imgur.com/COLQYld.png) - Nico Graverini, hai zero fantasia, come i neuroni
+- [video](https://www.youtube.com/watch?v=CpSxp9QpMi4&t=1315s) - Video guida by Bobroberto su come fare 955 gpm (gold per minuto) su sniper
 
 ### High Quality Posts
 - [screen](http://i.imgur.com/t6ZHN6u.png) - Davide Capruzzi, sul pezzo; da League of Legends
