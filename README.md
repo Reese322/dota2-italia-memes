@@ -27,6 +27,7 @@
 - [screen](http://i.imgur.com/7kFJ6Ed.png) - Andre Cantagalli, boh. *con rage di Matteo Rigoni*
 - [screen](http://i.imgur.com/COLQYld.png) - Nico Graverini, hai zero fantasia, come i neuroni
 - [screen](http://i.imgur.com/yZkdljI.png) - Simone Nettì con un blog dall'immenso ritardo e annesso whine sull'mmr e i russi.
+- [video](https://www.youtube.com/watch?v=CpSxp9QpMi4) - Roberto Sfameni, in arte Bobroberto, con una videoguida su come fare 955 gpm (gold per minuto) su sniper. Warning: alto contenuto di cromosomi
 
 ### High Quality Posts
 - [screen](http://i.imgur.com/t6ZHN6u.png) - Davide Capruzzi, sul pezzo; da League of Legends
